@@ -46,3 +46,5 @@
 使用教程视频  B站 : space.bilibili.com/2070238
 
 BUG反馈与交流 QQ群: 696916906
+
+联系邮箱： superdoudou998@qq.com
